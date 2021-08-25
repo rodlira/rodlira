@@ -7,4 +7,4 @@ migração de carreira.
 
 - sempre gostei de acompanhar o mundo da tecnologia
 - desde criança sou apaixonado por carros
-- 
+- mas so aprendi a dirigir agora 
